@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning About Binance And trading
 - 💞️ I’m looking to collaborate on Trading Plateform
 - 📫 How to reach me ...
-<a href="https://cryptosmentor.com/">Cryptos Mentor</a>
+<a href="https://kmspicoativador.com.br/">Kmspico Ativador</a>
